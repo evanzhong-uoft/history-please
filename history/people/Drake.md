@@ -8,3 +8,4 @@
 - *Take Care (2011)*
 - *Nothing Was the Same (2013)*
 - *Views (2016)*
+- *Scorpion(2018)*
